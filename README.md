@@ -10,3 +10,7 @@
 Jiung22/Jiung22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://app.despeed.net/register?ref=xgBCLx2z1Lac.
+https://app.aigaea.net/register?ref=gaI2MJz5vEHAcy.
+https://app.blockmesh.xyz/register?invite_code=795cd986-ae96-4392-93c4-dd8559b0eca4.
+https://www.app.multiple.cc/#/signup?inviteCode=UVFEB2ht.
